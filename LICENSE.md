@@ -1,4 +1,4 @@
-
+math for brainrots new Scripts offers the most advanced math for brainrots Script, with no clip and undetectable. Perfect for dominating any match.
 
 
 
